@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Interested to Coding and developing.
+2. Big BTS fan!
+3. loves to binge watch series!
